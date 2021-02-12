@@ -1,4 +1,4 @@
-### <font color="red"><p align="center">Did he apologize (NO) did he beg (NO)</p></font>  
+### <font color="red">Did he apologize (NO) did he beg (NO)</font>  
 <br/><br/>
 **The ‘mercy’ petitions ,(If you have read the authentic documents)It is clear that Savarkar showed no repentance, but instead argued that his views had changed and that he would renounce the revolutionary activism and adopt peaceful methods if he were to be released. It must be noted that It was a common tactic of the revolutionaries to promise to stay away from politics in exchange for release from the prison. Many revolutionaries and political prisoners, like Nand Gopal, Barindra Ghosh (brother of Aurobindo), Sachindranath Sanyal, Sudhir Sarkar etc, wrote similar petitions. In fact, Sachin Sanyal was released after he submitted his petition, but Savarkar was not. Sanyal wrote about it in his memoir:**  
 
